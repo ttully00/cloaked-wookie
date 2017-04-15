@@ -40,5 +40,5 @@
     Ye have the future grand and great,
     The safe appeal of Truth to Time
     
-   ** _John Greenleaf Whittier_
+   **_John Greenleaf Whittier_
     (http://www.public-domain-poetry.com/john-greenleaf-whittier/for-righteousness-sake-5904)**
