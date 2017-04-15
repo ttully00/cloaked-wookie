@@ -1,6 +1,6 @@
-For Righteousness' Sake
+# For Righteousness' Sake
 
-    By John Greenleaf Whittier
+    _By John Greenleaf Whittier_
 
 
 
@@ -40,5 +40,5 @@ For Righteousness' Sake
     Ye have the future grand and great,
     The safe appeal of Truth to Time
     
-    -- John Greenleaf Whittier
-    http://www.public-domain-poetry.com/john-greenleaf-whittier/for-righteousness-sake-5904
+    *John Greenleaf Whittier*
+    (http://www.public-domain-poetry.com/john-greenleaf-whittier/for-righteousness-sake-5904)
